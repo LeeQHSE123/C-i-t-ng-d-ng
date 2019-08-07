@@ -1,1 +1,1 @@
-# C-i-t-ng-d-ng
+# Cách cài đặt các ứng dụng liên quan
